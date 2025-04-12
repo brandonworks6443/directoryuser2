@@ -1,16 +1,15 @@
-## Hi there 👋
+ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
+  ![](https://komarev.com/ghpvc/?username=NiikoBuildsBricks&color=0b2971&style=flat&labe1=viewers)
+</p>  ⠀
 
-<!--
-**NiikoBuildsBricks/NiikoBuildsBricks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/silmfp.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center">
+SeanㅤㅤorㅤㅤNiko
+</p>
+<p align="center">
+Heㅤㅤ/ㅤㅤHim
+</p>  ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
+
