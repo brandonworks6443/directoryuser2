@@ -1,13 +1,13 @@
  ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=NiikoBuildsBricks&color=0b2971&style=flat&labe1=viewers)
+  ![](https://komarev.com/ghpvc/?username=beatzzpurminote&color=00acb2&style=flat&labe1=viewers)
 </p>  ⠀
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/silmfp.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/meziw5.png)
 
 
 <p align="center">
-SeanㅤㅤorㅤㅤNiko
+SeanㅤㅤorㅤㅤBeatz
 </p>
 <p align="center">
 Heㅤㅤ/ㅤㅤHim
