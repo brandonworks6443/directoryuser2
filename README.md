@@ -4,7 +4,7 @@
 
 
 <p align="center">
-ChanceㅤㅤorㅤㅤReroll
+Samuel⠀◞⠀PWNzer⠀◞⠀Chance⠀◞⠀Reroll
 </p>
 <p align="center">
 Heㅤㅤ/ㅤㅤHim
