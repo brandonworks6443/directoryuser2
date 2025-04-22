@@ -3,9 +3,6 @@
 </p>  ⠀
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/jgmat8.png)
-
-
 <p align="center">
 ChanceㅤㅤorㅤㅤReroll
 </p>
